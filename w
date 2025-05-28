@@ -1,1 +1,1 @@
-https://in.sumsub.com/websdk/p/nHd4tMpwjNrzLUVf?from=linkMobile
+https://in.sumsub.com/websdk/p/7pkiCjU5GxKnh49c?from=linkMobile
